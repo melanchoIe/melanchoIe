@@ -5,5 +5,5 @@
 
 [strawpage ᰔ](<https://unicornsinspace.straw.page>)
 [atabook ᰔ](<https://melancholic.atabook.org>)
-
+[prns ᰔ](<https://pronouns.cc/@melanchole>)
 basic dni critera + tcc + right wingers.
