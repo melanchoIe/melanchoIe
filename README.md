@@ -8,4 +8,4 @@
 [prns ᰔ](<https://pronouns.cc/@melanchole>)
 
 basic dni critera + tcc + right wingers.
-proship + darkship + radqueers strict dni.
+proship + darkship + radqueers strictly dni.
