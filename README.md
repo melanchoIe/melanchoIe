@@ -9,4 +9,4 @@
 
 basic dni critera + tcc + right wingers.
 
-proship and darkshippers strictly dni.
+proship + darkship + radqueers strictly dni.
