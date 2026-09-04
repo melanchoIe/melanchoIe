@@ -9,10 +9,3 @@
 
 basic dni critera + tcc + right wingers.
 proship + darkship + radqueers strictly dni.
-
-</details>
-
-<details align="center">
-
-<summary>ㅤ ${\textsf{\color{#ffffff} rat collection!﹕}}$ !! </summary
-https://files.catbox.moe/1abfxa.jpeg
