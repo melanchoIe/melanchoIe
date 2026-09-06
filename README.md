@@ -9,5 +9,4 @@
 basic dni + tcc + right wingers. pro/darkship and radqueers strictly dni
 
 <img width="100" height="100" alt="image" src="https://files.catbox.moe/vqpq0d.png"/>
-
 <img align="right" width="100" height="100" src="https://files.catbox.moe/031y0m.png">
