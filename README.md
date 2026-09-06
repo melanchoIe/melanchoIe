@@ -7,5 +7,4 @@
 [atabook ᰔ](<https://melancholic.atabook.org>)
 [prns ᰔ](<https://pronouns.cc/@melanchole>)
 
-basic dni critera + tcc + right wingers.
-proship + darkship + radqueers strictly dni.
+basic dni + tcc + right wingers. pro/darkship and radqueers strictly dni
