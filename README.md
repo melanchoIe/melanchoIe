@@ -6,7 +6,8 @@
 [ata ᰔ](<https://melancholic.atabook.org>)
 [prns ᰔ](<https://pronouns.cc/@melanchole>)
 
-basic dni + tcc + right wingers. pro/darkship and radqueers strictly dni
+[dni + byi ᰔ](<https://pronouns.cc/@melanchole/about>)
+
 
 
 <img width="100" height="100" alt="image" src="https://files.catbox.moe/vqpq0d.png"/>
