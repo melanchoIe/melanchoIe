@@ -1,7 +1,6 @@
-[ᴀᴛᴀ ᰔ](<https://melancholic.atabook.org>)
-[ᴘʀɴs ᰔ](<https://pronouns.cc/@melanchole>)
-[ᴅɴɪ + ʙʏɪ ᰔ](<https://pronouns.cc/@melanchole/about>)
-
+ | [ᴀᴛᴀ ♡](<https://melancholic.atabook.org>) |
+[ᴘʀɴs ♡](<https://pronouns.cc/@melanchole>) |
+[ᴅɴɪ + ʙʏɪ ♡](<https://pronouns.cc/@melanchole/about>) |
 <img width="300" height="300" alt="image" src="https://files.catbox.moe/eyzul4.png" />
 
 
