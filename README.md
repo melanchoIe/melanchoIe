@@ -1,4 +1,4 @@
- | [ᴀᴛᴀ ♡](<https://melancholic.atabook.org>) |
+ | [sᴛʀᴀᴡᴘᴀɢᴇ ♡](<https://melancured.straw.page>) |
 [ᴘʀɴs ♡](<https://pronouns.cc/@melanchole>) |
 [ᴅɴɪ + ʙʏɪ ♡](<https://pronouns.cc/@melanchole/about>) |   𐂯 .ᐟ⸝⸝ 
 
